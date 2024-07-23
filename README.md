@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer Science and Technology Interface Service
 - 🌱 I’m currently learning Medical Informatics in Chun Shang Medical University
 - 💞️ I’m looking to collaborate on company's project
-- 📫 How to reach me ? Check my LinkedIn on => https://www.linkedin.com/in/%E8%A9%A0%E7%BF%94-%E5%BC%B5-5b9909288/
+- 📫 How to reach me ? Check out my LinkedIn => https://www.linkedin.com/in/%E8%A9%A0%E7%BF%94-%E5%BC%B5-5b9909288/
 - 😄 Pronouns: William Pickacho
 - ⚡ Fun fact: My target is to join Anaheim Electronics' R&D, developing real Gundam :D
 
