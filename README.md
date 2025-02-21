@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Atypical281795
+- 👋 Hi, I’m Z YX
 - 👀 I’m interested in Computer Science and Technology Interface Service
 - 🌱 I’m currently learning Medical Informatics in Chun Shang Medical University
 - 💞️ I’m looking to collaborate on company's project
