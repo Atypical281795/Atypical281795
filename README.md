@@ -1,4 +1,4 @@
-👋 Hi, I’m Z YX
+👋 Hi, You can call me Ryan Chang or Z-YX
 
 👀 I’m interested in Computer Science and Technology Interface Service
 
